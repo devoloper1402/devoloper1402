@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @devoloper1402
+- 👋 Hi, I’m @devoloper1402 and People also call me Madhusoodhan TG
 - 👀 Coding is love and everything
 - 🌱 BTECH IT in RAJALAKSHMI ENGINEERING COLLEGE
 - 💞️ I’m looking to collaborate on ...
