@@ -2,7 +2,7 @@
 - 👀 Coding is love and everything
 - 🌱 BTECH IT in RAJALAKSHMI ENGINEERING COLLEGE
 - 💞️ I’m looking to collaborate on ...
-- 📫 follow me on instagram @madhusoodhan_T_G
+- 📫 follow me on instagram @dhamudhoosan
 
 <!---
 devoloper1402/devoloper1402 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
